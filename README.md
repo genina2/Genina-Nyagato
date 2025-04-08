@@ -1,1 +1,1 @@
-# Genina-Nyagato
+# Genina-Nya
